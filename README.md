@@ -1,3 +1,3 @@
 # **Aspiring Data Scientist**
 
-## Seeking a challenging role at a reputed organization to utilize my analytical skills that can contribute to the company’s growth as well as enhance my knowledge by exploring new things.
+# When you go into court you are putting your fate into the hands of twelve people who weren’t smart enough to get out of jury duty.
